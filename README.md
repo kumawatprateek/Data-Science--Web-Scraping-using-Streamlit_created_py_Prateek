@@ -105,8 +105,4 @@ For any inquiries or issues, please contact:
 
 - **Name:** Prateek Kumawat
 - **Email:** kumawatprateek008@gmail.com
-- **Phone:** +918529735076
 
----
-
-Feel free to adjust any sections according to your preferences or specific details.
